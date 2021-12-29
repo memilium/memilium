@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @memilium
+- 👋 Hi, I’m @memilium (Emil was taken, say what)
 - 👀 I’m interested in music, maths, gaming and coding!
 - 🌱 I’m currently learning how to code like a true master.
 - 📫 emil.cans@gmail.com
